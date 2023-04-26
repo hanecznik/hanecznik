@@ -8,4 +8,4 @@
 ##### 🐴 interests of animals, sports, music and more ;)
 ##### 🐈 privately: mother of two cats
 
-####### 🗣 Ask for more :)
+🗣 Ask for more :)
